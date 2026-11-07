@@ -215,4 +215,4 @@ Dark Void is the official full free version, offering all features and updates i
 Don’t miss out on the action! Download Dark Void now and dive into an unforgettable gaming adventure!
 
 ---
-**Last updated:** 2026-11-07 15:26:31 UTC
+**Last updated:** 2026-11-07 19:54:17 UTC
